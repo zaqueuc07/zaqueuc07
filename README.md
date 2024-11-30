@@ -1,4 +1,4 @@
-### boas vindas ao meu perfil 🥇
+### boas vindos ao meu perfil 🥇
 
 meu nome é Zaqueu Camargo
 
